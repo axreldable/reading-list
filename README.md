@@ -11,8 +11,8 @@ https://obamawhitehouse.archives.gov/sites/default/files/whitehouse_files/micros
 https://www.nitrd.gov/PUBS/bigdatardstrategicplan.pdf  
 Эти отчеты рекомендует к прочтению Константин Воронцов в беседе с ОДС (https://www.youtube.com/watch?v=DR3mgnEKRgI)
 
-3. Wy we sleep (Bill Gates list -2020) . 
+3. Wy we sleep (Bill Gates list -2020)  
 https://www.gatesnotes.com/Books/Why-We-Sleep
 
-4. These Truths (Bill Gates list -2020) . 
+4. These Truths (Bill Gates list -2020)  
 https://www.gatesnotes.com/Books/These-Truths
